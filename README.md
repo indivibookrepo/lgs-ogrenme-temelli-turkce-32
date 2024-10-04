@@ -1,0 +1,1 @@
+# lgs-ogrenme-temelli-turkce-32
